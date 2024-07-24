@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @linago14 (Lina González)
 - 👀 I’m interested in infectious diseases, I am a veterinary epidemiologist.
-- 🌱 I’m currently learning about sequencing viral pathogens.
+- 🌱 I’m currently learning about sequencing.
 - 💞️ I’m looking to collaborate on one health projects.
 - 😄 Pronouns: she/her
 
